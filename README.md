@@ -8,3 +8,5 @@
 Hdhdhshhs/Hdhdhshhs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+ Gi good morning não falo muito inglês queria que você me ajudasse
+Criar uma versão para o Motorola G5 ou G6
